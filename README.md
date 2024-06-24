@@ -1,7 +1,7 @@
 ### Hi there folks👋
 
+![22229ec5-a088-4fae-ba67-a18784743c75](https://github.com/bobgoodi76/bobgoodi76/assets/141277644/d5682d4b-c98b-4ffc-a382-6d328707610d)
 
-https://github.com/bobgoodi76/bobgoodi76/assets/141277644/f8243e83-5912-4cbc-a1fb-46a8f36a4732
 
 
 <!--
