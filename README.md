@@ -1,5 +1,9 @@
 ### Hi there folks👋
 
+
+https://github.com/bobgoodi76/bobgoodi76/assets/141277644/f8243e83-5912-4cbc-a1fb-46a8f36a4732
+
+
 <!--
 **bobgoodi76/bobgoodi76** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
